@@ -4,4 +4,4 @@ Made by Ritvik Chawla
 
 Registration Number: 209301056
 
-Section E, Btch 1
+Section E, Batch 1
